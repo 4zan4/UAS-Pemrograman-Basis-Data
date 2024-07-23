@@ -8,7 +8,7 @@ Hendri Kurniawan Prakosa, S.Kom., M.Cs
 
 ## 👨‍🎓Anggota Kelompok
 
-1. Rangga Saputra
+1. Rangga Yoga Pratama
 2. Joe Fauzsanno Rettob
 3. Yusma Zainal Lathiif
 4. Fauzan Aditya Putra
